@@ -6,3 +6,5 @@ Lo primero es hablar sobre el penultimo partido de la Champions y aqui hable sob
 ![ben](URL de la imatge).
 Estaba informando para cuando acabe
 dire los precios de los jugadores mas caros e la ctualidad y tambien los clubes. Y luego hablar de otras competiciones de España ,por ejemplo la copa del rey
+
+![text alternatiu](URL de la imatge).
